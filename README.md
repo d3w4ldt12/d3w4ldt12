@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @d3w4ldt12
+- 👀 I’m interested in Politics, Robotics, Coding, Cars...
+- 🌱 I’m currently learning C++ aand Arduino
+- 💞️ I’m looking to collaborate on the "FHCI NeoDev Project"
+- 📫 How to reach me 437 219 0708, steyd1610@wrdsb.ca
+- ⚡ Fun fact: im a GOOD rugby player.
